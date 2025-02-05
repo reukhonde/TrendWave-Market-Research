@@ -1,0 +1,1 @@
+# TrendWave-Market-Research
